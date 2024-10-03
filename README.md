@@ -25,13 +25,13 @@ You will be able to see this in my repository.
 
 - PS: It's very important if you need help there are so many resources for you, I promise you suicide is not the answer.
 
-9-8-8: Suicide Crisis Helpline
+- 9-8-8: Suicide Crisis Helpline
 
-Languages: English and French
+- Languages: English and French
 
-Phone Hours: 24/7
+- Phone Hours: 24/7
 
-Text Hours: 24/7
+- Text Hours: 24/7
 
-https://988.ca/
+- https://988.ca/
 
